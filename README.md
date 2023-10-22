@@ -2,4 +2,4 @@
 
 강의 출처
 
-- https://www.youtube.com/watch?v=63miHKtooo4&t=405s
+- https://youtu.be/63miHKtooo4?si=FDU3zgyIhpvdmeUl
